@@ -7,6 +7,5 @@
 ---
 ![IMAGE ALT TEXT HERE](https://play-lh.googleusercontent.com/phUhJzNvyZTpbUhQmN3oaj0bHL0pQ_tOeBLjlF_l9z8qK7zogZbYO0ttd3jTGTHdAQ=w240-h480-rw)
 
-<img src="https://play-lh.googleusercontent.com/phUhJzNvyZTpbUhQmN3oaj0bHL0pQ_tOeBLjlF_l9z8qK7zogZbYO0ttd3jTGTHdAQ=w240-h480-rw" width="2000" height"5000">
 
  [Page 2](https://pratibharay.github.io/Pratibha-Ray/nepalese-culture)
